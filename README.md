@@ -1,4 +1,5 @@
-# Android vendors, don't kill my app!
+<script type="text/javascript" src="https://www.free-counters.org/count/kbzp"></script><br>
+ <a href='https://www.acadoo.de/leistungen/ghostwriter-doktorarbeit/'>Doktorarbeit schreiben Hilfe</a> <script type='text/javascript' src='https://whomania.com/ctr?id=c8a31cf2e21cad25fd0de525c2e9a87ee28514db'></script># Android vendors, don't kill my app!
 
 ### [dontkillmyapp.com](https://dontkillmyapp.com)
 
